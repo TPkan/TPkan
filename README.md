@@ -34,6 +34,5 @@ I’m a 20-year-old Computer Science undergraduate from **Bac Giang City, Vietna
 - 📧 Email: [Tpkan12305@gmail.com](mailto:Tpkan12305@gmail.com)  
 - 🌐 Facebook: [khanhnghiemxuant](https://www.facebook.com/khanhnghiemxuant)
 
-> "Live in such a way that you have no regrets about your existence in this world." -NXK-
-
+> 
 ---

@@ -1,4 +1,4 @@
-# 🔥 Hi, I'm Nghiem Xuan KhanhAdd commentMore actions
+# 🔥 Hi, I'm Nghiem Xuan Khanh
 
 I’m a 20-year-old Computer Science undergraduate from **Bac Giang City, Vietnam**, with a strong passion for **Artificial Intelligence (AI)** and **AI-powered robotics**.  
 🚀 I’m constantly learning and sharpening my skills to become an **AI Engineer**, aiming to build innovative solutions that drive positive societal impact, especially in Vietnam.
